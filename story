@@ -6,3 +6,10 @@ long distance and was in search of food as he was very hungry.
 The kind monkey offered him a few rose apples. The crocodile
 enjoyed them very much and asked the monkey whether he could
 come again for some more fruit.
+
+second part- Her husband tried to convince her that he and the monkey shared a true friendship.
+ The crocodile’s wife thought to herself that if the monkey lived on a diet of rose monkeys,
+ his flesh would be very sweet. So she asked the crocodile to invite the monkey to their house.
+
+The crocodile was not happy about this.
+ He tried to make the excuse that it would be difficult to get the monkey across the river.
